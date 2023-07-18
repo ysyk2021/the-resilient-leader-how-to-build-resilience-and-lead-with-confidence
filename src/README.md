@@ -12,5 +12,4 @@ The Resilient Leader is a comprehensive guide to building resilience and leading
 
 By following the guidance provided in this book, you will be well-equipped to develop resilience, lead with confidence, and navigate through challenges as a leader. Whether you are a new manager or a seasoned executive, The Resilient Leader is your go-to resource for building resilience and leading with confidence.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
