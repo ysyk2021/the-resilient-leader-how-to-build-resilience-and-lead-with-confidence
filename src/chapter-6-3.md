@@ -1,4 +1,4 @@
-Chapter 8: How to Ask for Help When You Need It
+How to Ask for Help When You Need It
 ===============================================
 
 In this chapter, we will explore the importance of asking for help as a resilient leader and provide practical strategies for effectively seeking support when needed. Asking for help is not a sign of weakness but rather a testament to one's self-awareness, resourcefulness, and commitment to personal and professional growth. Let's delve into the key steps and considerations for asking for help:

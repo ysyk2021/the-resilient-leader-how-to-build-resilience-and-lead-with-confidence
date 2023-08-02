@@ -1,4 +1,4 @@
-Chapter 3: Techniques for Developing Resilience
+Techniques for Developing Resilience
 ===============================================
 
 In this chapter, we will explore various techniques and strategies that can help leaders develop resilience. These techniques empower leaders to navigate challenges, overcome adversity, and foster a resilient mindset. By practicing these techniques, leaders can build their capacity to lead with confidence in the face of uncertainty. Let's delve into some effective techniques for developing resilience:

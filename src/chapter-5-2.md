@@ -1,4 +1,4 @@
-Chapter 7: How to Identify Effective Coping Strategies
+How to Identify Effective Coping Strategies
 ======================================================
 
 In this chapter, we will explore the process of identifying and implementing effective coping strategies to build resilience and lead with confidence. Coping strategies are essential tools that enable resilient leaders to navigate challenges, manage stress, and maintain a sense of well-being. Let's delve into the steps for identifying effective coping strategies:

@@ -1,4 +1,4 @@
-Chapter 8: How to Reframe Challenges as Opportunities for Growth
+How to Reframe Challenges as Opportunities for Growth
 ================================================================
 
 Challenges are an inevitable part of leadership, but resilient leaders have the ability to reframe these challenges as opportunities for growth and development. In this chapter, we will explore strategies and mindset shifts that can help leaders view challenges through a different lens. By reframing challenges, leaders can embrace them as catalysts for personal and professional growth. Let's delve into how to reframe challenges as opportunities for growth.

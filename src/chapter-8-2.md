@@ -1,4 +1,4 @@
-Chapter 9: Strategies for Learning from Setbacks
+Strategies for Learning from Setbacks
 ================================================
 
 Setbacks are an inevitable part of leadership, but resilient leaders can turn them into valuable learning opportunities. In this chapter, we will explore strategies that can help leaders learn from setbacks and bounce back stronger. These techniques are designed to foster resilience, promote growth, and empower leaders to navigate challenges with confidence. Let's delve into the strategies for learning from setbacks.

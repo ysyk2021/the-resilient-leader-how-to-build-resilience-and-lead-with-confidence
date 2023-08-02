@@ -1,4 +1,4 @@
-Chapter 9: Strategies for Staying Optimistic During Challenging Times
+Strategies for Staying Optimistic During Challenging Times
 =====================================================================
 
 In this chapter, we will explore effective strategies for staying optimistic as a resilient leader during challenging times. Maintaining a positive mindset is crucial for overcoming obstacles and leading with confidence. Let's delve into practical strategies that can help you stay optimistic:

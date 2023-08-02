@@ -1,4 +1,4 @@
-Chapter 8: Different Coping Mechanisms for Leaders
+Different Coping Mechanisms for Leaders
 ==================================================
 
 In this chapter, we will explore various coping mechanisms that leaders can adopt to build resilience and effectively navigate challenges. The ability to cope with stress and adversity is crucial for maintaining confidence and leading with strength. Let's delve into different coping strategies:

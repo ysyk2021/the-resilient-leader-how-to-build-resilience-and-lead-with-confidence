@@ -1,4 +1,4 @@
-Chapter 2: The Importance of Self-Awareness in Leadership
+The Importance of Self-Awareness in Leadership
 =========================================================
 
 Self-awareness is a fundamental attribute that enables leaders to understand themselves, their strengths, weaknesses, emotions, and impact on others. In this chapter, we will explore the significance of self-awareness in leadership and how it contributes to building resilience and leading with confidence. Let's delve into the concept of self-awareness:

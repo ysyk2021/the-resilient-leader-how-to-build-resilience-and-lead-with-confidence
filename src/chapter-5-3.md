@@ -1,4 +1,4 @@
-Chapter 5: Techniques for Managing Stress and Anxiety
+Techniques for Managing Stress and Anxiety
 =====================================================
 
 In this chapter, we will explore a variety of techniques that resilient leaders can employ to effectively manage stress and anxiety. The ability to handle these challenges is essential for maintaining well-being and leading with confidence. Let's delve into some effective techniques for managing stress and anxiety:

@@ -1,4 +1,4 @@
-Chapter 8: Techniques for Practicing Mindfulness
+Techniques for Practicing Mindfulness
 ================================================
 
 In this chapter, we will explore various techniques for practicing mindfulness as a resilient leader. Mindfulness is a powerful tool that enhances self-awareness, focus, and emotional intelligence, enabling leaders to build resilience and lead with confidence. Let's delve into different mindfulness techniques:

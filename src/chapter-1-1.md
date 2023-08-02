@@ -1,4 +1,4 @@
-Chapter 1: Purpose of the Book
+Purpose of the Book
 ==============================
 
 In this opening chapter, we will explore the purpose and objectives of "The Resilient Leader: How to Build Resilience and Lead with Confidence". This book aims to provide leaders with valuable insights, practical strategies, and actionable steps to enhance their resilience and lead with confidence in the face of adversity. Let's dive into the purpose of this book:

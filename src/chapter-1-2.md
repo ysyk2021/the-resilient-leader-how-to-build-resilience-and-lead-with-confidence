@@ -1,4 +1,4 @@
-Chapter 1: Definition of Resilience in Leadership
+Definition of Resilience in Leadership
 =================================================
 
 Resilience is a fundamental quality that empowers leaders to navigate challenges, bounce back from setbacks, and inspire their teams to thrive in the face of adversity. In this chapter, we will explore the definition of resilience in leadership and its significance in building confidence. Let's delve into the concept of resilience:

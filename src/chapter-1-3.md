@@ -1,4 +1,4 @@
-Chapter 3: Why Building Resilience is Important for Leaders
+Why Building Resilience is Important for Leaders
 ===========================================================
 
 Resilience is a vital trait for leaders in today's fast-paced and ever-changing world. In this chapter, we will explore the significance of building resilience and how it empowers leaders to navigate challenges, adapt to change, and lead with confidence. Let's delve into why resilience is crucial for leaders.

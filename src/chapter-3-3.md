@@ -1,4 +1,4 @@
-Chapter 2: How to Use Self-Awareness to Build Resilience
+How to Use Self-Awareness to Build Resilience
 ========================================================
 
 Self-awareness is a fundamental aspect of building resilience as a leader. It involves understanding one's emotions, thoughts, strengths, weaknesses, and reactions to different situations. In this chapter, we will explore how self-awareness can be utilized to enhance resilience and lead with confidence. Let's dive into the strategies:
