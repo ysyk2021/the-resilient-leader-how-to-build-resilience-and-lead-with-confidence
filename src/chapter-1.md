@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Resilience is critical for successful leadership, and in today's rapidly changing business environment, leaders must be able to adapt quickly to change, navigate challenges, and inspire their teams. In this book, we will explore various strategies and techniques for building resilience and leading with confidence.
 

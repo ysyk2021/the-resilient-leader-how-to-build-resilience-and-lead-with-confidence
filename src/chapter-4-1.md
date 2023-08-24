@@ -1,5 +1,3 @@
-The Benefits of Optimism in Leadership
-=================================================
 
 In this chapter, we will explore the benefits of optimism in leadership and how it contributes to building resilience and leading with confidence. Optimism is a powerful mindset that enables leaders to navigate challenges, inspire their teams, and drive positive change. Let's delve into the numerous advantages of embracing optimism as a resilient leader:
 

@@ -1,4 +1,3 @@
-# Introduction
 
 Leadership is a challenging and demanding role that requires resilience, adaptability, and confidence. In today's fast-paced, ever-changing business environment, it is more important than ever for leaders to be resilient and able to navigate through challenges and setbacks.
 

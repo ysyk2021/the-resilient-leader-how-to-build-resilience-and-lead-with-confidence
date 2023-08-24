@@ -1,5 +1,3 @@
-The Importance of Confidence in Leadership
-=====================================================
 
 Confidence is an essential attribute for effective leadership. In this chapter, we will explore the significance of confidence in leadership and how it empowers leaders to inspire their teams, make tough decisions, and drive success. Let's delve into why confidence is crucial for leaders.
 

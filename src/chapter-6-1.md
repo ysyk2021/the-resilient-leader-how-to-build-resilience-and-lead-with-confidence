@@ -1,5 +1,3 @@
-The Importance of Social Support in Leadership
-=========================================================
 
 In this chapter, we will examine the crucial role of social support in developing resilience and leading with confidence. As a resilient leader, it's essential to recognize the significance of having a strong support network and fostering positive relationships within your professional and personal life. Let's explore the various aspects of social support and its impact on effective leadership:
 

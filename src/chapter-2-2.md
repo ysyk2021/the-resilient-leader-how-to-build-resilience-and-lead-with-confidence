@@ -1,5 +1,3 @@
-The Benefits of Resilience in Leadership
-===================================================
 
 In this chapter, we will explore the numerous benefits that resilience brings to leadership. Resilient leaders possess a unique set of qualities and skills that enable them to thrive in challenging situations and inspire their teams to achieve success. Let's delve into the many benefits of resilience in leadership:
 

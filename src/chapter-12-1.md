@@ -1,5 +1,3 @@
-The Benefits of Celebrating Achievements in Leadership
-=======================================================================================
 
 Celebrating success is an important part of building resilience and leading with confidence. In this chapter, we will explore the benefits of celebrating achievements in leadership and provide some tips for how to do it effectively.
 

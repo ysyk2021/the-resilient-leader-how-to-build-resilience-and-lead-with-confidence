@@ -1,5 +1,3 @@
-The Importance of Monitoring Progress in Building Resilience
-============================================================================================
 
 Assessing progress is an essential part of building resilience. As leaders face challenges and setbacks, monitoring progress allows them to identify areas for improvement and measure their own growth and development. In this chapter, we will explore the importance of monitoring progress in building resilience.
 

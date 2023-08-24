@@ -1,5 +1,3 @@
-Strategies for overcoming these obstacles
-===========================================================================
 
 As a leader, you will undoubtedly encounter obstacles and challenges along your journey. These obstacles can come in many forms, such as financial setbacks, difficult team members, or unexpected market changes. However, it is important to remember that these obstacles do not define you as a leader. Rather, it is how you overcome these obstacles that will truly showcase your resilience and leadership abilities.
 

@@ -1,5 +1,3 @@
-Chapter 10: Overcoming Obstacles
-================================
 
 Resilient leaders are able to overcome obstacles and navigate challenges effectively. However, there are common obstacles that can test even the most resilient leaders. In this chapter, we will explore common obstacles to resilient leadership, strategies for overcoming these obstacles, and how to stay motivated when faced with setbacks.
 

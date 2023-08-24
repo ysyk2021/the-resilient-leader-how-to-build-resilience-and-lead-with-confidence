@@ -1,5 +1,3 @@
-Chapter 6: Building Strong Relationships
-========================================
 
 Building strong relationships is an essential part of building resilience and leading with confidence. Leaders who have strong social support networks are better equipped to navigate challenges, manage stress and anxiety, and achieve long-term success. In this chapter, we will explore the importance of social support in leadership and provide strategies for building and maintaining healthy relationships.
 

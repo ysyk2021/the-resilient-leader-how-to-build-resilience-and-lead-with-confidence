@@ -1,5 +1,3 @@
-Techniques for Developing a Positive Mindset
-=======================================================
 
 In this chapter, we will explore effective techniques for developing and maintaining a positive mindset as a resilient leader. A positive mindset is essential for building resilience, fostering optimism, and leading with confidence. Let's delve into practical strategies that can help you cultivate a positive mindset:
 

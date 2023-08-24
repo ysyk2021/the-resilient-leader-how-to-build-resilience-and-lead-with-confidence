@@ -1,5 +1,3 @@
-Strategies for Building and Maintaining Healthy Relationships
-========================================================================
 
 In this chapter, we will explore strategies for building and maintaining healthy relationships as a resilient leader. Strong and positive relationships are essential for effective leadership and personal well-being. By cultivating healthy connections with others, leaders can create a supportive environment, foster collaboration, and inspire their teams to thrive. Let's delve into practical strategies to build and nurture these relationships:
 

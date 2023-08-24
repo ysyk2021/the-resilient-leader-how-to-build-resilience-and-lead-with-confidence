@@ -1,5 +1,3 @@
-What is Resilience?
-==============================
 
 In this chapter, we will explore the concept of resilience and its significance for leaders in building resilience and leading with confidence. Resilience is a crucial attribute that enables individuals to navigate challenges, overcome adversity, and thrive in the face of uncertainty and change. Let's delve into understanding what resilience is:
 

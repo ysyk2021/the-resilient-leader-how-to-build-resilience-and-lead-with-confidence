@@ -1,5 +1,3 @@
-Common Obstacles to Resilient Leadership
-==========================================================================
 
 As a leader, obstacles are inevitable. Whether it's a difficult team member, a budget cut, or a global crisis, resilient leaders must be able to overcome obstacles and continue moving forward. In this chapter, we'll explore some common obstacles to resilient leadership and how to overcome them.
 

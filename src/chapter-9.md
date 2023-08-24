@@ -1,5 +1,3 @@
-Chapter 9: Leading with Confidence
-==================================
 
 Confidence is a critical component of effective leadership. Leaders who exude confidence inspire and motivate their team, build trust with stakeholders, and achieve long-term success. In this chapter, we will explore the importance of confidence in leadership and techniques for building and communicating with confidence.
 

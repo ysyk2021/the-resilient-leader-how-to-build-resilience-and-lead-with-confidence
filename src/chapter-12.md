@@ -1,5 +1,3 @@
-Chapter 12: Celebrating Success
-===============================
 
 As a resilient leader, it's important to celebrate success along the way. Celebrating achievements can help maintain motivation and momentum, and also foster a positive and supportive team culture. This chapter will discuss the benefits of celebrating success, different ways to do so, and why it's important to acknowledge progress.
 

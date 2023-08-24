@@ -1,5 +1,3 @@
-Chapter 3: Building Self-Awareness
-==================================
 
 Self-awareness is a critical component of effective leadership and building resilience. It involves understanding your own strengths, weaknesses, values, and emotions. In this chapter, we will explore the importance of self-awareness in leadership, strategies for improving self-awareness, and how to use self-awareness to build resilience.
 

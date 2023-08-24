@@ -1,5 +1,3 @@
-Methods for tracking progress
-=============================================================
 
 Assessing progress is a critical component of building resilience and achieving success. By tracking progress, leaders can identify areas for improvement, set goals, and measure their own growth and development. In this chapter, we will explore methods for tracking progress and assessing success.
 

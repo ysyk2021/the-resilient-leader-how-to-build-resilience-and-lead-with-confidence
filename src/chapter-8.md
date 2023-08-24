@@ -1,5 +1,3 @@
-Chapter 8: Learning from Challenges
-===================================
 
 Challenges and setbacks are inevitable in both personal and professional life. However, it's how we respond to these challenges that defines us as leaders. In this chapter, we'll explore strategies for learning from challenges and reframing them as opportunities for growth.
 

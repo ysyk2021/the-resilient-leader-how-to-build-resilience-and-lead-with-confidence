@@ -1,5 +1,3 @@
-Techniques for Building Confidence as a Leader
-=========================================================
 
 Building confidence is an essential skill for effective leadership. In this chapter, we will explore various techniques that can help leaders develop and strengthen their confidence. These techniques are designed to enhance self-belief, foster growth, and empower leaders to lead with unwavering assurance. Let's dive into the techniques for building confidence as a leader.
 

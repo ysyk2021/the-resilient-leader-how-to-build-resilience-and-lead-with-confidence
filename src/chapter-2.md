@@ -1,5 +1,3 @@
-Chapter 2: Understanding Resilience
-===================================
 
 Resilience is a critical trait for leaders who face constant challenges, setbacks, and uncertainties. It involves the ability to adapt and recover from adversity. In this chapter, we will explore what resilience is, the benefits of resilience in leadership, and techniques for developing resilience.
 

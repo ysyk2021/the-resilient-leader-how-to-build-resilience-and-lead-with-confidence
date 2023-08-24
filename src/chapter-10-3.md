@@ -1,5 +1,3 @@
-How to Stay Motivated When Faced with Setbacks
-================================================================================
 
 Leadership is a challenging role that often involves setbacks and obstacles. It is important for leaders to develop resilience skills to stay motivated and overcome these challenges. In this chapter, we will explore how to stay motivated when faced with setbacks.
 

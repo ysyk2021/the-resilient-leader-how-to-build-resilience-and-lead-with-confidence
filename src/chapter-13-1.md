@@ -1,5 +1,3 @@
-Recap of Key Concepts
-=============================================
 
 In this book, we have explored various strategies and techniques for building resilience and leading with confidence. From adopting a growth mindset to prioritizing self-care, the concepts covered in this book are essential for anyone looking to become a more resilient leader. In this final chapter, we will recap some of the key concepts covered in this book.
 

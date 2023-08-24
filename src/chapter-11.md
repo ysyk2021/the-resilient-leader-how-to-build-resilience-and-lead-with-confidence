@@ -1,5 +1,3 @@
-Chapter 11: Assessing Progress
-==============================
 
 In this chapter, we'll discuss the importance of monitoring progress in building resilience and offer methods for tracking progress. We'll also discuss when to adjust goals and action plans.
 

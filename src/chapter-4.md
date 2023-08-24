@@ -1,5 +1,3 @@
-Chapter 4: Cultivating Optimism
-===============================
 
 Cultivating optimism is an essential part of building resilience and leading with confidence. A positive mindset can help leaders approach challenges with a can-do attitude and increase overall well-being. In this chapter, we'll explore the benefits of optimism in leadership, techniques for developing a positive mindset, and strategies for staying optimistic during challenging times.
 

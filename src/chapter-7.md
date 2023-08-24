@@ -1,5 +1,3 @@
-Chapter 7: Practicing Mindfulness
-=================================
 
 Mindfulness is a powerful tool for building resilience and enhancing leadership effectiveness. Leaders who practice mindfulness are better able to manage stress, remain focused, and make more informed decisions. In this chapter, we will explore the benefits of mindfulness in leadership, techniques for practicing mindfulness, and how to incorporate mindfulness into your daily life.
 

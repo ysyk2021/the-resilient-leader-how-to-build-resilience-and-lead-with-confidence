@@ -1,5 +1,3 @@
-Chapter 5: Developing Coping Skills
-===================================
 
 Developing coping skills is an essential part of building resilience and leading with confidence. Coping skills can help leaders manage stress, overcome challenges, and maintain a positive mindset. In this chapter, we'll explore different coping mechanisms for leaders, how to identify effective coping strategies, and techniques for managing stress and anxiety.
 

@@ -1,5 +1,3 @@
-When to Adjust Goals and Action Plans
-=====================================================================
 
 Assessing progress is an essential part of building resilience and achieving goals. However, knowing when to adjust goals and action plans can be challenging. In this chapter, we will explore some key indicators that may signal the need for adjustments, as well as strategies for making those adjustments.
 

@@ -1,5 +1,3 @@
-Different Ways to Celebrate Success
-====================================================================
 
 Celebrating success is an important part of building resilience and leading with confidence. There are many different ways to celebrate success, and the key is to find approaches that work best for your team. In this chapter, we will explore some different ways to celebrate success.
 

@@ -1,5 +1,3 @@
-The Benefits of Mindfulness in Leadership
-====================================================
 
 In this chapter, we will explore the numerous benefits that mindfulness brings to leadership. Mindfulness is the practice of intentionally focusing one's attention on the present moment, without judgment. It has become increasingly recognized as a valuable tool for leaders seeking to enhance their effectiveness and lead with confidence. Let's delve into the many benefits of mindfulness in leadership:
 
