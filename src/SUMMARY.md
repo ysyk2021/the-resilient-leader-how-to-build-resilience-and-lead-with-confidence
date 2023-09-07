@@ -50,3 +50,4 @@
   - [Why it's important to acknowledge and appreciate progress](chapter-12-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
