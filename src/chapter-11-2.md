@@ -1,5 +1,4 @@
-Chapter 8: Methods for Tracking Progress
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------
